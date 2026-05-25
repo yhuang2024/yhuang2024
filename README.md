@@ -1,4 +1,4 @@
-## Welcome to my page! 🪴🦜☀️
+## Welcome to my page! 🌊🫐⛰️
 
 Hi, I’m Yuyuan! I study Computer Science and International and Public Affairs at Brown University.
 
